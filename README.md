@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @NicoloIlSup3r
+- 👀 Working on a RedM Server
+- 🍕 Italian
+- ✅ Main account
